@@ -23,6 +23,8 @@ https://pastebin.com/Q7gEzmey (Mutual Aid - full song)
 
 https://pastebin.com/ADWHdi4a (Trump mind-reading radio waves)
 
+https://pastebin.com/e6R3fe5S (Quantum nano human teleportation)
+
 #### Erotica
 
 https://pastebin.com/AGexW3pr
