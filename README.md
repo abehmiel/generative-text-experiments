@@ -11,9 +11,17 @@ https://pastebin.com/BHKGwgbH (People attributes)
 
 #### Song Lyrics
 
-https://pastebin.com/TKdvYhd3 (The supremacy of pure artistic feeling)
+https://pastebin.com/TKdvYhd3 (The Supremacy of Pure Artistic Feeling - excerpt)
 
-https://pastebin.com/R6QDZWav (Indivisible)
+https://pastebin.com/R6QDZWav (Indivisible - excerpt)
+
+https://pastebin.com/G76ygjRu (Another the Letter - excerpt)
+
+https://pastebin.com/Q7gEzmey (Mutual Aid - full song)
+
+#### News
+
+https://pastebin.com/ADWHdi4a (Trump mind-reading radio waves)
 
 #### Erotica
 
