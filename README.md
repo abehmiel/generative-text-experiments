@@ -19,6 +19,8 @@ https://pastebin.com/G76ygjRu (Another the Letter - excerpt)
 
 https://pastebin.com/Q7gEzmey (Mutual Aid - full song)
 
+https://pastebin.com/4McBDtYv (There's No One New Around You - full song)
+
 #### News
 
 https://pastebin.com/ADWHdi4a (Trump mind-reading radio waves)
