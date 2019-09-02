@@ -15,6 +15,8 @@ https://pastebin.com/TKdvYhd3 (The Supremacy of Pure Artistic Feeling - excerpt)
 
 https://pastebin.com/R6QDZWav (Indivisible - excerpt)
 
+https://pastebin.com/kwgcrQ5d (The Words - Full Song)
+
 https://pastebin.com/G76ygjRu (Another the Letter - excerpt)
 
 https://pastebin.com/Q7gEzmey (Mutual Aid - full song)
